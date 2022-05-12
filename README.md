@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @henrique-al
+- 👀 Account for SENAI, my portfolio ir at @henriquelazzarino
